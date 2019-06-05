@@ -1,5 +1,3 @@
- 
-
 ## Euripides, *Bacchae*
 
 - he is a stranger/ass-on to the system 

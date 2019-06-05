@@ -1,0 +1,33 @@
+## Chocolat
+
+- fairytale, timeless, takes place in a french village
+- If Vianne is like Dionysus
+  - Dionysus' drug is wine, both poison and medicine
+  - Vianne's drug is chocolate
+- Both drugs are something that you have to <u>take in</u>
+- The Chocolaterie is like a church
+  - a place of healing, psychic salvation
+  - chocolates acting like Viagra
+  - gives people a connection, being allied to other people
+  - gives them the opportunity to express themselves fully
+- Mother and Son are broght together by Dionysus' drug
+  - begs her not to kill him 
+- Fanaticism is shown through serge 
+  - justifies his crime with religion, doing something in the name of god
+- Both Dionysus and Vianne are considered 'different' to the townsfolk
+  - Vianne shows up wearing a bright red cape
+  - she is a single mother
+    - daughter does not know who the mother is
+      - hints that Vianne has had many lovers
+        - her morals are lax
+  - the daughter talks back to the mother
+    - in the village where everything is proper, children obey
+      - Luke vs Anouk
+    - has not been brought up as an innocent child
+- They both want to be included, and accepted
+- The North Wind
+  - the narrative force that propels things forward
+  - acts as the god, told her to go there in the first place
+- The South Wind
+  - more calming
+  - 
